@@ -1,0 +1,2 @@
+- 👋 ola eu sou a @dudahermann
+- 👀 este e meu email eduarda.hermann.nunes@escola.pr.gov.br
